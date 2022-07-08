@@ -1,0 +1,2 @@
+# murodillo
+Eng zor rasmlar
